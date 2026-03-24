@@ -17,7 +17,7 @@
 
 ## 📫 How to reach me
 - **Email:** eyasusaketa@gmail.com  
-- **LinkedIn:** [linkedin.com/in/eyasusaketa](https://linkedin.com/in/eyasusaketa)  
+- **LinkedIn:** [www.linkedin.com/in/eyasu-s-180b9186](www.linkedin.com/in/eyasu-s-180b9186)  
 - **GitHub:** [github.com/eyasusaketa](https://github.com/eyasusaketa)
 
 ---
